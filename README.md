@@ -1,2 +1,2 @@
-# 08.03.2026-Praca-na-zaj-ciach
+# 08.03.2026-Praca-na-zajeciach
 Technologie Internetowe
